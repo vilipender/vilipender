@@ -7,7 +7,7 @@
 
 :3c < I also hand out crowns in my free time , so if you get a crown by me ; know that I think your skin is beautiful ! keep up the good work ! ![image](https://64.media.tumblr.com/efe0d1ad1f2a334c4c2b1b82f095c745/4e25f56b77720d16-b8/s75x75_c1/37855a7edea8f32def5200007c1283d3ef591a3b.gifv)
 
-![image](https://64.media.tumblr.com/d260b01c44e24b2137b4867d89098296/3ebc7aa84564ec79-3d/s75x75_c1/81b7733d4ec1281b57c10102a1019fc7c2d1c310.gifv) ) I also also like to . follow ppl on github at random , just for funsies btw . So if you don't like that , block me !
+![image](https://64.media.tumblr.com/d260b01c44e24b2137b4867d89098296/3ebc7aa84564ec79-3d/s75x75_c1/81b7733d4ec1281b57c10102a1019fc7c2d1c310.gifv) ) I also also like to . follow ppl on github at random , just for funsies btw . So if you don't like that , block me ! also , if i follow someone that is like . problematic or fucking weird , please drop a message on my guestbook and tell me ! i have no problem unfollowing them and blocking !
 
 thanks 4 reading . ![image](https://64.media.tumblr.com/b12bf1eea55b8ff22e7378877c089168/59dbbcecd7dfa490-33/s75x75_c1/da225f0442af02641a2732cbbc0de14271fa4c41.gifv)
 
