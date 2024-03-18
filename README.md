@@ -5,8 +5,9 @@
 <p align="center">
 <img src="https://64.media.tumblr.com/a76b2f40419dec8c8b88d56ac823c2d6/c3cdfcef234a22e8-1e/s400x600/d12bdd20617790d4d75c0c58e16c19c811028d76.gifv"width="378px">
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ୨ㅤ[rentry](https://rentry.co/noirescence) ㅤㅤ+ㅤㅤ[guestbook](https://malediction.123guestbook.com/) ㅤ♡
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<p align="center">
+<br><a href="https://rentry.co/noirescence">୨ rentry</a>ㅤ++ㅤ<a href="https://malediction.123guestbook.com/">guestbook ♡</a> <br><br>
+
 <p align="center">
 <img src="https://64.media.tumblr.com/113746a0f69596ae4fe943944b653cfd/15f94f12842bb8d7-72/s400x600/283d6633de2c7288e67362e7f3a7e7b0224af50f.pnj"width="378px">
 
