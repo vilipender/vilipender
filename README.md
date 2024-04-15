@@ -25,7 +25,7 @@ Possible MDD , ㅤAuDHD , ㅤand ㅤmaladaptive ㅤ daydream ㅤ haver <img src=
 Check out [rentry](https://rentry.co/noirescence) 
 Sign my [guestbook](https://malediction.123guestbook.com/) and I will respond as I check it every other day! <img src="http://i171.photobucket.com/albums/u300/ferny-dust/sozai/bullets/91.gif"/>
 
-I am 16, almost 17 ! <img src="https://wilardo.crd.co/assets/images/gallery04/a5ea13f7.gif?v=587f0c5f"/>
+I am 17 ! Happy Birth 2 me ! <img src="https://wilardo.crd.co/assets/images/gallery04/a5ea13f7.gif?v=587f0c5f"/>
 
 I have a typing quirk, Whisper to interact please, I spam follow for FUN alone, AND PLEASE READ MY RENTRY BEFORE INTERACTING! <img src="https://64.media.tumblr.com/e30fdc7a5482152c477a611be8ad1890/83935b1f3fe89671-93/s75x75_c1/cb23f8ac33ae6bdf6845a87f2e3486e52c47b821.gifv"/>
 </h4> 
