@@ -23,7 +23,7 @@ Call me . . . ✧ Estiene or Mortimer . ⊹ African American ♡ Vivir / Any pro
 Possible MDD , ㅤAuDHD , ㅤand ㅤmaladaptive ㅤ daydream ㅤ haver <img src="https://wilardo.crd.co/assets/images/gallery02/d5b7d47e_original.gif?v=d0e71742"/>
 
 Check out [rentry](https://rentry.co/noirescence) 
-Sign my [guestbook](https://villyth.123guestbook.com/) and I will respond as I check it every other day! <img src="http://i171.photobucket.com/albums/u300/ferny-dust/sozai/bullets/91.gif"/>
+Sign my [guestbook](https://malediction.123guestbook.com/) and I will respond as I check it every other day! <img src="http://i171.photobucket.com/albums/u300/ferny-dust/sozai/bullets/91.gif"/>
 
 I am 16, almost 17 ! <img src="https://wilardo.crd.co/assets/images/gallery04/a5ea13f7.gif?v=587f0c5f"/>
 
@@ -46,7 +46,7 @@ I have a typing quirk, Whisper to interact please, I spam follow for FUN alone, 
 
 CR ;; dolliebunnies & medicinep0cket for graphics , mikopixels for the pix!
 
-Cred to [Orph](https://github.com/Ovrpheus) & made by [Vinny!](https://github.com/Ovrpheus) for Vilipender! (Image below is me and vilipender btw canon)
+Cred to [Orph](https://github.com/Ovrpheus) & made by [Vinny!](https://github.com/Vilyth) for Vilipender! (Image below is me and vilipender btw canon)
 <img src="https://64.media.tumblr.com/36b709b015c7120f371a1afe0d11b91e/80d785fe68d34d09-0e/s2048x3072/474f33ab77563b15ddb23df9eefb8dfdd3619aad.pnj"/>
 <!---
 vilipender/vilipender is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
