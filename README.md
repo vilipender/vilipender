@@ -1,21 +1,53 @@
-***
-<p align="center">
-<img src="https://64.media.tumblr.com/ae9b5701b6bf0ff6a8c1428836e569af/15f94f12842bb8d7-bb/s400x600/012f10e8a853df65d9add8103c6a4c4f6234b1ce.pnj"width="378px"> 
+<h5 align="center">
+<img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
+<img src="https://64.media.tumblr.com/51f2e638f62b82d1b2629f7070372e29/57979cd21bfdeb89-f1/s2048x3072/b5962a88386faedf81ae7a8d2081d4671e0e0c13.pnj"/>
 
-<p align="center">
-<img src="https://64.media.tumblr.com/a76b2f40419dec8c8b88d56ac823c2d6/c3cdfcef234a22e8-1e/s400x600/d12bdd20617790d4d75c0c58e16c19c811028d76.gifv"width="378px">
+</h5>
 
-<p align="center">
-<br><a href="https://rentry.co/noirescence">୨ rentry</a>ㅤ++ㅤ<a href="https://malediction.123guestbook.com/">guestbook ♡</a> <br><br>
+$${\color{#949a5f}"\space Oh \space , \space Father \space tell \space me \space , do \space we \space get \space what \space we \space deserve \space ? \space "}$$
 
-<p align="center">
-<img src="https://64.media.tumblr.com/113746a0f69596ae4fe943944b653cfd/15f94f12842bb8d7-72/s400x600/283d6633de2c7288e67362e7f3a7e7b0224af50f.pnj"width="378px">
+<img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
 
-***
+<h5 align="center">
+<img src="https://64.media.tumblr.com/458bc1d0c16a7bcabe2290d1cd21e21a/57979cd21bfdeb89-8f/s1280x1920/756ddcc9734ca5cc08df114014951e18f16d62df.pnj"/>
+</h5> 
 
-![image](https://64.media.tumblr.com/07ff324b9ea760b872e7786a450c5a4f/11e8ce74f0043f84-a3/s100x200/ec4a1d05116eefcd1a4dcc79ccb00188e949341a.gifv) ![image](https://64.media.tumblr.com/885aa069865ee246d452ad520fd75e6f/20ed56725570ded6-89/s250x400/e8895b7281d1eda248d634916e011a675ad519c5.gifv) ![image](https://64.media.tumblr.com/f061ea9c12ba98151bf3c59f82bc3bcb/b3d83bbf44993478-ee/s100x200/75e66e1bbd9405f2f51bd709ceaf86b56f0aaaa4.gifv) ![image](https://64.media.tumblr.com/68bb9e71ec030bfeb579002c6761aa36/b3d83bbf44993478-0d/s100x200/7569b62b2f614b7c533fc147604e5ea1e17dd887.gifv) ![image](https://64.media.tumblr.com/e328ee0f3f80c5d6596378979e7f7988/b3d83bbf44993478-7f/s100x200/4c8aafca73e51867644cf0ffd5b3e0d84797a320.pnj) ![image](https://64.media.tumblr.com/582462acbe7ca7b0748575d357efd636/39e286ffc93b1357-3e/s100x200/fca677c56fda79c21429dab5b09d1bcbfbcc809a.pnj) ![image](https://64.media.tumblr.com/99a3ea0c94a86db3fce61a666654fbf3/d75f79ba8da9c3a5-57/s100x200/b5e0974d1c8e4a6915fbc35da34264d455a9b979.pnj) ![image](https://64.media.tumblr.com/7a82699302d1d9aac8e7ed5a78c1f4f4/b574f4a39f7de4a6-d3/s100x200/c54257d994ab23618100645e4b7b514b554713a9.gifv) ![image](https://64.media.tumblr.com/70e1e9ffde3d48d13b056d3e7a2b931c/c1a57e8f42a67571-57/s100x200/92c2c642973a2d281117fd09d7dc1fb82fe409e9.pnj) ![image](https://64.media.tumblr.com/e82c10bc2dadb20173a3741d3ec6601d/806f382713dac5df-1c/s100x200/080028518c2b5d71777a1c4e97b7c6cc44f86703.pnj) ![image](https://64.media.tumblr.com/206583fe35dd59824e53e1fcb8c44b9d/f627ac19cb8fb316-1e/s100x200/49346a24e1001bce4aae3eda1c48c5d16c94b3fe.pnj) ![image](https://64.media.tumblr.com/c39baa69b4ad3b82fef2b8e10a5c4fc1/07e80bd723d3bf82-2a/s100x200/f160dcbe8cd3776f7ad86bb5b430d72347b6d452.pnj) ![image](https://64.media.tumblr.com/ef4861659aaaa746d6ab699767017577/9daede5de7a8ce43-87/s100x200/6ea8917987f418afe3f2e97fe02b341be86e05d3.pnj) ![image](https://64.media.tumblr.com/05373a29a6e42d209b5e35b462a9136e/9daede5de7a8ce43-b3/s100x200/de36a32001a290ddf7b6c3f7ad78150892ee7c53.pnj) ![image](https://64.media.tumblr.com/0b813e2b4f8b209a63e102430f4b805a/68aa877d24820849-c4/s100x200/377b0e7f846b38ccbb86ba2df82e0d16eeff0278.gifv) ![image](https://64.media.tumblr.com/dba978c9fd39bcf228836b33ec30b8fe/637b80202fefabca-be/s100x200/2adf9ea1e529edb76c397a86a24a13ac2951c692.gifv) ![image](https://64.media.tumblr.com/088d3924cc80f758108fa090f892a96a/7a69c4534dbceef9-23/s100x200/bac2856a4fbad8055e8f150862c6f56a3f31ff4b.pnj) ![image](https://64.media.tumblr.com/4af91a4c7f6b1685c5a2357ccd77297a/4b9e098e1753b2dc-18/s100x200/a177ec71d0fde4a0f6f4cafdcddcec9af812b253.pnj) ![image](https://64.media.tumblr.com/7b2d2bc2daaa7e49b4060f50580ac32c/c3de01a11644097d-ba/s100x200/e6cd1fba5d8acfd79709ec6bced89ac4f6f109ef.gifv) ![image](https://64.media.tumblr.com/a188df5c8646719d930518241877f180/dde60c1e9dfffeeb-67/s100x200/a8d8cf4359165dd10bf36255838af7a87e47d15d.jpg) ![image](https://64.media.tumblr.com/c60711bf6c276cc5401fe1cd298f33d4/5f9be032b67db63c-b3/s250x400/f7cf4080b8414dd092ec9cf3eb0ca1f3eb939277.gifv) ![image](https://64.media.tumblr.com/62b786db1ccad0c475fdc8a759558ab6/84390cb64990b6fb-18/s250x400/bde4812b5a69629c3eda3f4fee69945eea2ac3b2.pnj) ![image](https://64.media.tumblr.com/0e17175b3f600eab664c0a66ea4d8793/752e6ba0c92595f8-15/s100x200/bb73a82c04d97e72fc5877355419731e70eda1e9.pnj) ![image](https://64.media.tumblr.com/e5bfea93eb4b96b715508aab8a574f71/bf20e6d390cc0ec8-55/s100x200/3736e38eec1e16ab5ef1762d647f45304e517045.pnj)![](https://images-ext-1.discordapp.net/external/x_BDktNAOJxUbdqHIx4KQzrdvovLDRGmOT6FFJtfxBY/%3Ftoken%3DeyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2IzZjQxMzA1LWMyMDQtNGE4ZC05OGI1LWJmMzQ3NDRjMDBhMFwvZDNhbXJiNC0yMmI5YjNmZC02MjMzLTQxMzMtYTFkYS02NzhhYjk4YzVmNjYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.oh52tZm2R3vWG6UtsBETmfUedBJbCaKJEuAxjjd3RSI/https/images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b3f41305-c204-4a8d-98b5-bf34744c00a0/d3amrb4-22b9b3fd-6233-4133-a1da-678ab98c5f66.gif)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://64.media.tumblr.com/cddbcf27cefc45e1ab90f7d281c01ff5/3206403692d2c7ad-f1/s400x600/c097def76f2cdf63bfbb651807f2bacdd458107f.pnj) ![image](https://64.media.tumblr.com/cf25ab8e190b6882a52fbe687d3d03a0/3206403692d2c7ad-3e/s400x600/332c904dea2dcba20d18c7f1ff2aa17c4196a51a.pnj)
+<h4 align="center">
+Call me . . . ✧ Estiene or Mortimer . ⊹ African American ♡ Vivir / Any pronouns
+</h4> 
+<h5 align="center">
+<img src="https://64.media.tumblr.com/4fedefb7b51de96194628b139e60ea52/bbdd527784ad917b-14/s500x750/5bb0168e945f8937b5530362da841cb1db0c6831.pnj"/>
+</h5>  
+<h4 align="center">
 
+Possible MDD , ㅤAuDHD , ㅤand ㅤmaladaptive ㅤ daydream ㅤ haver <img src="https://wilardo.crd.co/assets/images/gallery02/d5b7d47e_original.gif?v=d0e71742"/>
 
+Check out [rentry](https://rentry.co/noirescence) 
+Sign my [guestbook](https://villyth.123guestbook.com/) and I will respond as I check it every other day! <img src="http://i171.photobucket.com/albums/u300/ferny-dust/sozai/bullets/91.gif"/>
+
+I am 16, almost 17 ! <img src="https://wilardo.crd.co/assets/images/gallery04/a5ea13f7.gif?v=587f0c5f"/>
+
+I have a typing quirk, Whisper to interact please, I spam follow for FUN alone, AND PLEASE READ MY RENTRY BEFORE INTERACTING! <img src="https://64.media.tumblr.com/e30fdc7a5482152c477a611be8ad1890/83935b1f3fe89671-93/s75x75_c1/cb23f8ac33ae6bdf6845a87f2e3486e52c47b821.gifv"/>
+</h4> 
+
+<h5 align="center">
+<img src="https://64.media.tumblr.com/c096d3d0aaaf957d012c2c4bf113f428/57979cd21bfdeb89-97/s1280x1920/77462383bc01f2796f473460af2537d2a98a456b.pnj"/>
+</h5>
+
+<img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
+
+<p align ="center">
+<img src="https://64.media.tumblr.com/57fa8f970b7391d27f946d020b81897d/bbdd527784ad917b-9d/s500x750/8668dbf4709c040388aef49fe1e5a0986c2ca76f.pnj.gif"/>
+</h5>  
+</p>
+
+<img src="https://64.media.tumblr.com/7c1630edf11ad51871a5f87ee46f40bd/57979cd21bfdeb89-84/s2048x3072/23f37fd834d0b47334fb11101312c5c500b3ca22.pnj"/>
+<img src="https://64.media.tumblr.com/65521aab1911ae652dc05e965b30e67e/57979cd21bfdeb89-64/s1280x1920/42890f91512a57a6fc1deecc3e47a71e8b55c443.pnj"/>
+
+CR ;; dolliebunnies & medicinep0cket for graphics , mikopixels for the pix!
+
+Cred to [Orph](https://github.com/Ovrpheus) & made by [Vinny!](https://github.com/Ovrpheus) for Vilipender! (Image below is me and vilipender btw canon)
+<img src="https://64.media.tumblr.com/36b709b015c7120f371a1afe0d11b91e/80d785fe68d34d09-0e/s2048x3072/474f33ab77563b15ddb23df9eefb8dfdd3619aad.pnj"/>
 <!---
 vilipender/vilipender is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
