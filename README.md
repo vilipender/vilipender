@@ -46,7 +46,7 @@ I have a typing quirk, Whisper to interact please, I spam follow for FUN alone, 
 
 CR ;; dolliebunnies & medicinep0cket for graphics , mikopixels for the pix!
 
-Cred to [Orph](https://github.com/Ovrpheus) & made by [Vinny!](https://github.com/Vilyth) for Vilipender! (Image below is me and vilipender btw canon)
+Cred to [Orph](https://github.com/Ovrpheus) & made by [Vinny!](https://github.com/Villyth) for Vilipender! (Image below is me and vilipender btw canon)
 <img src="https://64.media.tumblr.com/36b709b015c7120f371a1afe0d11b91e/80d785fe68d34d09-0e/s2048x3072/474f33ab77563b15ddb23df9eefb8dfdd3619aad.pnj"/>
 <!---
 vilipender/vilipender is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
