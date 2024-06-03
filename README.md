@@ -17,6 +17,11 @@ grimoire  ✚  estiene <br> anyall / vivir
 <p align="center"> <img src="https://64.media.tumblr.com/0a31c2e1d2bcc5df2eb98e31eb2110b1/79d8b316934d24c3-5d/s100x200/4b7c20c8acdb2df5bf732f5200d06af94ae21fbe.gifv"/> <img src="https://64.media.tumblr.com/844652d1cf8d2c0fab25d6dd0c199452/0ff738aae3bed445-59/s100x200/bbf109051850daeaefd61f26221f9547d4c44d00.jpg"/> <img src="https://64.media.tumblr.com/97a0c487981805269ed73917f48adb21/473928ea48888009-9f/s100x200/8367b381f5ffcb29552b1b7e349767bf7da34e81.pnj"/> <img src="https://64.media.tumblr.com/7b82c4b656ad3e3093ab0aa161f69315/e4a0bbfbab0a44fe-d4/s100x200/8eb4f7ea17267ee413d80af851a2d0b4f4427b61.pnj"/> <img src="https://64.media.tumblr.com/f1494ab3e694699f37557da526beaff9/ec8f693b87536b40-6d/s100x200/5014d79593adcea9f2288d7a8f6894acf12ce7d1.gifv"/> </p>
 
 ***
+
+<a href="https://github.com/vilipender/meow/blob/main/README.md">
+<img src="https://github.com/shinminase/shinminase/blob/main/images/svg/blinkies.svg"></img>
+</a>
+
 <!---
 vilipender/vilipender is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
