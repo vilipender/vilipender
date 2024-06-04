@@ -9,7 +9,7 @@ grimoire  ✚  estiene <br> anyall / vivir
 
 <div align="center">
 
-[rentry](https://rentry.co/noirescence)ㅤ![](https://64.media.tumblr.com/ebc088a4bdd166462affbd1b69c5583b/44c9b4778b706b1d-17/s75x75_c1/cb5d5a47c2fda2cad3930cc39cfbd5de25aa900b.gifv)ㅤ[retrospring](https://retrospring.net/@POINTOFORDER)ㅤ![](https://64.media.tumblr.com/b632394e9909a9202eb856d08a9d5b39/44c9b4778b706b1d-5b/s75x75_c1/18e79b7c6339d2afb732582ad81019e6d78b8cbb.gifv)ㅤ[pixel hoard](https://github.com/vilipender/meow)
+[rentry](https://rentry.co/noirescence)ㅤ![](https://64.media.tumblr.com/ebc088a4bdd166462affbd1b69c5583b/44c9b4778b706b1d-17/s75x75_c1/cb5d5a47c2fda2cad3930cc39cfbd5de25aa900b.gifv)ㅤ[retrospring](https://retrospring.net/@ISOPOD)ㅤ![](https://64.media.tumblr.com/b632394e9909a9202eb856d08a9d5b39/44c9b4778b706b1d-5b/s75x75_c1/18e79b7c6339d2afb732582ad81019e6d78b8cbb.gifv)ㅤ[pixel hoard](https://github.com/vilipender/meow)
 </div>
 
 <p align="center"> <img src="https://64.media.tumblr.com/39dd81255c2a3edeb3b295cd968db8bb/34f95ffafd33527b-90/s100x200/12979a5ce28343697c62df46d433068bed01461e.gifv"/> <img src="https://64.media.tumblr.com/6103c5a2e4277f7e0dc0a22cd870262b/85f4f2fed7740bac-ea/s100x200/48fd146db69f5aa6cb46c41c0f9245df4ae4fd88.pnj"/> <img src="https://64.media.tumblr.com/8db257366fc8585c17164cf803edc194/473928ea48888009-da/s100x200/7d01018150c4017156642f88eb1d111409130f06.jpg"/> <img src="https://64.media.tumblr.com/876945b9ad5b0f4ec13dc85602fe33b6/6f072ea04e7b6c72-c7/s100x200/1ce848dfcc4461af9d3971e10acd52404c4f66d3.gifv"/></p>
