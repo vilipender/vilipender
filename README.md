@@ -18,7 +18,7 @@ grimoire  ✚  estiene <br> anyall / vivir
 
 ***
 
-<p align="center"> <img src="https://64.media.tumblr.com/b405fcd0310ab393eb4cad8d8f779e34/8b81320fce4ac928-f2/s540x810/22af140d087296c038e3187c7ca24cab144a4b59.pnj"/> <img src="https://64.media.tumblr.com/448271bbef9355ed36bedca070a4be5f/8b81320fce4ac928-99/s640x960/9ec6c25e62701e99f213a0f8ee3d6bbfc410f8e3.pnj"/> </p>
+<p align="right"> <img src="https://64.media.tumblr.com/b405fcd0310ab393eb4cad8d8f779e34/8b81320fce4ac928-f2/s540x810/22af140d087296c038e3187c7ca24cab144a4b59.pnj"/> </p> <p align="left"> <img src="https://64.media.tumblr.com/448271bbef9355ed36bedca070a4be5f/8b81320fce4ac928-99/s640x960/9ec6c25e62701e99f213a0f8ee3d6bbfc410f8e3.pnj"/> </p>
 
 <p align="center">
 I SIT IN THE HOYO AREA IN THE TINY TREE NEAR THE CAFE !!!  ✚  <br> I ALSO SIT NEXT TO THIS SIGN NEAR SPAWN !!!!!
