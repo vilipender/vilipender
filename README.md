@@ -1,6 +1,5 @@
 ***
 
-
 <p align="center"> <img src="https://64.media.tumblr.com/d94ff1127c1b383f37b108e0408b4021/85c8e64bdff71e02-b1/s250x400/24aed4deebca1888d477c93c4dbf93d772bb6578.pnj"/> </p>
 
 <p align="center">
@@ -16,9 +15,13 @@ grimoire  ✚  estiene <br> anyall / vivir
 
 <p align="center"> <img src="https://64.media.tumblr.com/0a31c2e1d2bcc5df2eb98e31eb2110b1/79d8b316934d24c3-5d/s100x200/4b7c20c8acdb2df5bf732f5200d06af94ae21fbe.gifv"/> <img src="https://64.media.tumblr.com/844652d1cf8d2c0fab25d6dd0c199452/0ff738aae3bed445-59/s100x200/bbf109051850daeaefd61f26221f9547d4c44d00.jpg"/> <img src="https://64.media.tumblr.com/97a0c487981805269ed73917f48adb21/473928ea48888009-9f/s100x200/8367b381f5ffcb29552b1b7e349767bf7da34e81.pnj"/> <img src="https://64.media.tumblr.com/7b82c4b656ad3e3093ab0aa161f69315/e4a0bbfbab0a44fe-d4/s100x200/8eb4f7ea17267ee413d80af851a2d0b4f4427b61.pnj"/> <img src="https://64.media.tumblr.com/f1494ab3e694699f37557da526beaff9/ec8f693b87536b40-6d/s100x200/5014d79593adcea9f2288d7a8f6894acf12ce7d1.gifv"/> </p>
 
+
+
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%237495A3&title_bg=%2337486A&icon=github.svg&icon_color=%23B8C7DA&title=visits&edge_flat=false)](https://hits.seeyoufarm.com) 
+
 ***
 
-<p align="right"> <img src="https://64.media.tumblr.com/b405fcd0310ab393eb4cad8d8f779e34/8b81320fce4ac928-f2/s540x810/22af140d087296c038e3187c7ca24cab144a4b59.pnj"/> </p> <p align="left"> <img src="https://64.media.tumblr.com/448271bbef9355ed36bedca070a4be5f/8b81320fce4ac928-99/s640x960/9ec6c25e62701e99f213a0f8ee3d6bbfc410f8e3.pnj"/> </p>
+<p align="center"> <img src="https://64.media.tumblr.com/b405fcd0310ab393eb4cad8d8f779e34/8b81320fce4ac928-f2/s540x810/22af140d087296c038e3187c7ca24cab144a4b59.pnj"/> <img src="https://64.media.tumblr.com/448271bbef9355ed36bedca070a4be5f/8b81320fce4ac928-99/s640x960/9ec6c25e62701e99f213a0f8ee3d6bbfc410f8e3.pnj"/> </p>
 
 <p align="center">
 I SIT IN THE HOYO AREA IN THE TINY TREE NEAR THE CAFE !!!  ✚  <br> I ALSO SIT NEXT TO THIS SIGN NEAR SPAWN !!!!!
