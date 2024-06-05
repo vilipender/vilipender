@@ -17,7 +17,7 @@ grimoire  ✚  estiene <br> anyall / vivir
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fgjbae1212%2Fhit-counter&count_bg=%237495A3&title_bg=%2337486A&icon=github.svg&icon_color=%23B8C7DA&title=visits&edge_flat=false)](https://hits.seeyoufarm.com) 
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Hits](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fgithub.com%2Fvilipender%2Fhit-counter&count_bg=%23314E72&title_bg=%2383AEB6&icon=github.svg&icon_color=%23E7E7E7&title=congrats+%21+you%27re+visitor+number+%3A&edge_flat=false)](https://hits.seeyoufarm.com)
 
 ***
 
